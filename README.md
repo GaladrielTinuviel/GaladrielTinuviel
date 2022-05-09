@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GaladrielTinuviel
+- 👋 Hi, I’m @GaladrielTinúviel
 - 👀 I’m interested in everything about Tolkien.
 - 🌱 I’m currently learning in school, but at the same time Sindarin.
 - 💞️ I’m looking to collaborate on well, everything!
